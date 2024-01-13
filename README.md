@@ -1,1 +1,1 @@
-you can view project here
+you can view project here : https://farxodyadgarov.github.io/nft-marketplace/
